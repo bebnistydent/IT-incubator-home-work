@@ -1,1 +1,0 @@
-# IT-incubator-home-work
